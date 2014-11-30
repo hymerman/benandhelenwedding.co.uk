@@ -1,15 +1,18 @@
-/* Move down content because we have a fixed navbar that is 63px tall */
-body {
+/* Move down content because we have a fixed navbar that is 63px tall. */
+body
+{
   padding-top: 63px;
   padding-bottom: 20px;
 }
 
-.jumbotron {
+.jumbotron
+{
     background-image: url(../images/seamless_paper_texture.png);
 }
 
-/* Increase the font size of the nav text - default is hardly noticeable */
-.navbar .nav>li>a {
+/* Increase the font size of the nav text - default is hardly noticeable. */
+.navbar .nav>li>a
+{
 	font-size: 12px;
 }
 
@@ -17,13 +20,14 @@ body {
 h3 { font-size: 22px; }
 h4 { font-size: 18px; }
 
-/* This confusing bit of style is to move the logical position of headings up by the height of the navbar so anchor navigation works correctly */
+/* This confusing bit of style is to move the logical position of headings up by the height of the navbar so anchor navigation works correctly. */
 h1[id],
 h2[id],
 h3[id],
 h4[id]
 {
-padding-top: 63px; margin-top: -63px;
+    padding-top: 63px; margin-top: -63px;
+}
 
 /* Add a fancy image to horizontal rules. */
 hr
