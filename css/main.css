@@ -13,6 +13,10 @@ body {
 	font-size: 12px;
 }
 
+/* Add a little more size difference between headings 2/3/4; Bootstrap's default values look a little similar. */
+h3 { font-size: 22px; }
+h4 { font-size: 18px; }
+
 /* This confusing bit of style is to move the logical position of headings up by the height of the navbar so anchor navigation works correctly */
 h1[id],
 h2[id],
