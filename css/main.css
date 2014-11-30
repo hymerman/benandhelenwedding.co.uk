@@ -24,4 +24,13 @@ h3[id],
 h4[id]
 {
 padding-top: 63px; margin-top: -63px;
+
+/* Add a fancy image to horizontal rules. */
+hr
+{
+    margin-top:70px;
+    margin-bottom:60px;
+    height: 18px;
+    background: url(../images/divider.png) no-repeat center;
+    border: none;
 }
