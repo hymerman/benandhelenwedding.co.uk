@@ -1,16 +1,16 @@
 # Ben and Helen's wedding
 ## 30th August 2015
-Welcome to our wedding website! Here we will put all the useful information you need to know about the big day, and some helpful local information. Please check back every now and then for updates, as the website is likely to be continually evolving!
+Welcome to our wedding website! Here we will put all the useful information you need to know about the big day, as well as some helpful local information. Please check back every now and then, as we'll be updating it regularly!
 
 ## General
 ### Why France?
-Why the Chateau Javarzay in Chef Boutonne? Well, Ben popped the question whilst we were on holiday in France. But prior to that, this area of France has always been our special escape; we have had numerous holidays in mum and dad's beautiful maison in Saint Martin d'Entraigues. And we love the area. On our holidays, we often pack up a fromage-filled baguette and cycle over to the chateau to picnic by the lake. The area is very special to us, I can't think of anywhere where we feel more relaxed and at home, and we wanted to share it with everyone!
+Why the Château Javarzay in Chef Boutonne? Well, Ben popped the question whilst we were on holiday in France. But before that, this area of France has always been our special escape; we have had numerous holidays in mum and dad's beautiful maison in Saint Martin d'Entraigues. And we love the area. On our holidays, we often pack up a fromage-filled baguette and cycle over to the château to picnic by the lake. The area is very special to us; I can't think of anywhere where we feel more relaxed and at home, and we wanted to share it with everyone!
 
 ### Overview of the day
-We will have our ceremony in the castle grounds (which is a public space, so we may have some curious french onlookers!). We need everyone to keep everything crossed for a beautiful sunny day, but incase anyone brings any English weather with them, we have hired a marquee to shelter under. We are holding the ceremony at 3pm, so would be grateful if you could arrive at about 2:30. After the ceremony we will serve cocktails and hors d'oeuvres, and you will have some free time to look around the castle grounds and lake whilst we have photographs taken (for those of you with children, there is a small playpark to keep everyone entertained). Then we will move in the chateau ferme, which literally translates into english as the farm, but don't be alarmed, it is a hall! Here we will have dinner, drinks and dancing into the night!
+We will have our ceremony in the castle grounds (which is a public space, so we may have some curious French onlookers!). We need everyone to keep everything crossed for a beautiful sunny day, but in case anyone brings any English weather with them, we have hired a marquee to shelter under. We are holding the ceremony at 3pm, so would be grateful if you could arrive at about 2:30. After the ceremony we will serve cocktails and hors d'oeuvres, and you will have some free time to look around the castle grounds and lake whilst we have photographs taken (for those of you with children, there is a small play park to keep them entertained). Then we will move in the château 'ferme', which literally translates into English as the farm - but don't be alarmed, it's just a normal hall! Here we will have dinner, drinks and dancing into the night!
 
 ### Free bar!!
-As a way of thanking all of you for making the effort of traveling over to France, we have paid for all the drinks at the bar, so you don't need to bring any euros to spend on food or drink on the day of the wedding.
+As a way of thanking all of you for making the effort of travelling over to France, we have paid for all the drinks at the bar, so you don't need to bring any euros to spend on food or drink on the day of the wedding.
 
 ### Plan for the day after
 Nothing set in stone yet, but we would like to have a gathering and perhaps a BBQ. Details to be confirmed!
@@ -20,8 +20,8 @@ Nothing set in stone yet, but we would like to have a gathering and perhaps a BB
 ## Accommodation
 There are many local accommodation options, which we have researched and summarised in the list below. Our advice is to book as local as possible, unless you have a designated driver in your party, because it is not as easy as it is in the UK to catch a taxi! If there are many guests staying in one place or nearby each other, we could try to organise some shared transport.
 
--   ### Gites associated with the Chateau hall (Gite des Fleurs and Gite des Arbres)
-    We have booked and paid for the accommodation associated with the hall, so it is free to those of you who want it, on a 'first come first served' basis! The accommodation is several dorms, sleeping 4-6 people per room, in bunk beds, and it is available both Saturday night and Sunday night. One of the gites is directly above the hall, and one is next door, approximately 10 steps away! We need you to be out by 10:30 on Monday morning, and you need to leave the bedrooms, bathrooms and kitchens in a clean state, else we won't get our deposit back! Bed linen is provided, but that is all. Bathrooms are shared. We had a look round, and everything is very basic but clean and well looked after. We have a total of 36 beds available, so if you would like to use this accommodation, let us know, and we will book you a space and try to organise everyone into groups of people who know each other.
+-   ### Gîtes associated with the château hall (Gîte des Fleurs and Gîte des Arbres)
+    We have booked and paid for the accommodation associated with the hall, so it is free to those of you who want it, on a 'first come first served' basis! The accommodation is several dorms, sleeping 4-6 people per room, in bunk beds, and it is available both Saturday night and Sunday night. One of the gîtes is directly above the hall, and one is next door - nice and easy to roll into at the end of the night! We need you to be out by 10:30 on Monday morning, and you need to leave the bedrooms, bathrooms and kitchens in a clean state, else we won't get our deposit back! Bed linen is provided, but that is all. Bathrooms are shared. We had a look round, and everything is very basic but clean and well looked after. We have a total of 36 beds available, so if you would like to use this accommodation, let us know, and we will book you a space and try to organise everyone into groups of people who know each other.
   
 -   ### Camping le Moulin
     The campsite has a mixture of pitches for tents, and static caravan homes available for rent, and the site is approximately 1km from the wedding venue. It is run by an English couple, and also has a reasonable restaurant on site.
@@ -34,25 +34,27 @@ There are many local accommodation options, which we have researched and summari
     [Logis de Lussais website](http://www.daydreamfrance.com)
 
 -   ### Les Chalets de la Héronnière
-    Recommended to us by our french next-door neighbours Jean-Pierre and Christien. Approximately 2km away from the wedding venue, comprised of 20 chalets around a lake and with an onsite restaurant. It looks quite family-orientated as it also has a playpark.
+    Recommended to us by our French next-door neighbours Jean-Pierre and Christien. Approximately 2km away from the wedding venue, comprised of 20 chalets around a lake and with an onsite restaurant. It looks quite family-orientated as it also has a playpark.
 
     [Les Chalets de la Héronnière website](http://heronniere.com/)
 
 -   ### Hotel des Voyageurs
-    Located in the centre of Chef Boutonne, approximately 1.5km away from the wedding venue. It has a very nice restaurant downstairs (we recommend the steak, ask for it "à point" for medium, or "saignant" for rare if you are feeling brave!!)
+    Located in the centre of Chef Boutonne, approximately 1.5km away from the wedding venue. It has a very nice restaurant downstairs.
 
     [Hotel des Voyageurs information](http://www.poitoucharentes.visite.org/EN/visite-hotel-des-voyageurs_5386.html)
 
     [Hotel des Voyageurs booking](https://www.bedandbreakfast.eu/bed-and-breakfast/chef-boutonne/hotel-des-voyageurs/364254/)
 
--   ### Cottage directly opposite Chateau Javarzay (information courtesy of our wedding planner)
-    Verina Henchy owns a house opposite the chateau. It is their second home and they don't rent it out commercially. So, they will be there but your guests would have free access to the kitchen, dining room, living room, garden and bikes. There is a double room which is en-suite, a family room with two double beds and a smaller room suitable for one person or two children and a family bathroom. There is also a toilet/shower on the ground floor. The cost for Saturday and Sunday night would be 500€/£400 for the house. She'd be happy to be paid in cash in £'s but would need a 100€ payment as a deposit to her UK bank account. If anyone is interested in this option, please let me know and I will ask for the owner's telephone number.
+-   ### Cottage directly opposite Château Javarzay (information courtesy of our wedding planner)
+    Verina Henchy owns a house opposite the château. It is their second home and they don't rent it out commercially. So, they will be there but you would have free access to the kitchen, dining room, living room, garden and bikes. There is a double room which is en-suite, a family room with two double beds and a smaller room suitable for one person or two children and a family bathroom. There is also a toilet/shower on the ground floor. The cost for Saturday and Sunday night would be 500€/£400 for the house. She'd be happy to be paid in cash in £'s but would need a 100€ payment as a deposit to her UK bank account. If anyone is interested in this option, please let us know and we will put you in contact.
 
 -   ### Chateau Ardilleux
-    Approximately 4km away from the wedding venue, a converted manor house with 5 double ensuite rooms of varying sizes, as well as a detached cottage available to rent. The accommodation includes access to an indoor pool, tennis court and games room. It also has an associated restaurant, with a very tasty looking menu (at the time of writing, one of the desserts is Mango crème brulee!!) www.holidaychateau.com
+    Approximately 4km away from the wedding venue, a converted manor house with 5 double ensuite rooms of varying sizes, as well as a detached cottage available to rent. The accommodation includes access to an indoor pool, tennis court and games room. It also has an associated restaurant, with a very tasty looking menu (at the time of writing, one of the desserts is mango crème brûlée!!).
+
+    [Chateua Ardilleux website](www.holidaychateau.com)
 
 -   ### Les Hiboux
-    Approximately 7km away from the wedding venue, a site containing 4 holiday cottages, each sleeping between 6 and 12 people. On site there is an outdoor pool, boules pitches (very french!) and children's play apparatus.  
+    Approximately 7km away from the wedding venue, a site containing 4 holiday cottages, each sleeping between 6 and 12 people. On site there is an outdoor pool, boules pitches (very French!) and children's play apparatus.
 
     [Les Hiboux website](http://www.leshiboux.com)
 
@@ -65,7 +67,7 @@ There are many local accommodation options, which we have researched and summari
 ------------------------------------------------------------------------------
 
 ## Travel
-Our recommendation is to catch the ferry and drive to the wedding, because if you want to extend your stay you need to have a private vehicle to get around, as public transport is almost non-existent in this rural area of france. Alternatively, fly/train and then hire a car. Driving in France is not as daunting as it sounds - once you have gone around your first roundabout it will feel natural!
+Our recommendation is to catch the ferry and drive to the wedding, because if you want to extend your stay you need to have a private vehicle to get around, as public transport is almost non-existent in this rural area of France. Alternatively, fly/train and then hire a car. Driving in France is not as daunting as it sounds - once you have gone around your first roundabout it will feel natural!
 
 ### By car
 Remember that in europe you drive on the right-hand side!!!
@@ -78,9 +80,9 @@ Speed limits are different in France. On their main toll roads, the limits are 1
 
 Speed cameras are different. They are called "control automatique" and are in general not as bright and obvious as british cameras; they try to hide them.
 
-French road etiquette - French drivers are in general not as polite as English drivers! For example, they do not move over to the middle lane of the motorway when you are joining from the slip-road. Some also drive in what english people feel as a threatening manner; very close behind and making it very obvious that they want to overtake. Don't take this personally, this is just how they prefer to drive!
+French road etiquette - French drivers are in general not as polite as English drivers! For example, they do not move over to the middle lane of the motorway when you are joining from the slip-road. Some also drive in what English people feel as a threatening manner; very close behind and making it very obvious that they want to overtake. Don't take this personally, this is just how they prefer to drive!
 
-Service stations are called "aire". Quite often the more rural ones don't have proper toilet, just holes in the ground with a ceramic bit for you to stand on... all part of the authentic french experience!!
+Service stations are called "aire". Quite often the more rural ones don't have proper toilet, just holes in the ground with a ceramic bit for you to stand on... all part of the authentic French experience!!
 
 ### By ferry
 Brittany ferries sail from Portsmouth to St Malo, Caen and Le Havre. Condor ferries sail from Portsmouth, Poole and Weymouth to St Malo but you have to change at Guernsey or Jersey.  Driving times to Chef Boutonne from St Malo is approx 4-5 hours, from Caen is 4.5-5.5 hours, and from Le Havre is 5-6 hours.
@@ -148,16 +150,16 @@ Again, for those of you planning on extending your stay, we have compiled a list
     Our favourite restaurant! Very reasonably priced, run by a husband and wife team. They serve a cold buffet starter, followed by a main, cheese course and pudding, for €16.50. One word of warning; you absolutely have to book your table, and the owner will tell you the time she wants you to arrive, normally "sept heure et demi" (7:30). We have witnessed her turning people away if they haven't booked, even though we were the only other customers in the restaurant!
 
 -   ### Hotel des Voyageurs, Chef Boutonne
-    A bit more pricey, but excellent food. In the nice weather they serve food on their outside terrace. Last time we visited I had a particularly tasty steak!
+    A bit more pricey, but excellent food. In the nice weather they serve food on their outside terrace. Last time we visited I had a particularly tasty steak! Ask for it "à point" for medium, or "saignant" for rare if you are feeling brave!
 
 -   ### Pizzeria Restaurant JOS, Chef Boutonne
     Recently renovated, they sell tasty pizza. We usually get a takeaway "pour emporter"
 
 -   ### Restaurant des Canards, Chef Boutonne
-    This is the restaurant associated with the camp site. It is run by an English couple, but the last time we went the chef was french. They tend to serve more english-y meals, because most of their customers at the campsite are English. They also have themed nights e.g. quiz nights on specific days of the week, which they advertise on the board outside the campsite.
+    This is the restaurant associated with the camp site. It is run by an English couple, but the last time we went the chef was French. They tend to serve more English-y meals, because most of their customers at the campsite are English. They also have themed nights e.g. quiz nights on specific days of the week, which they advertise on the board outside the campsite.
 
 -   ### La Côte de Boeuf, Melle
-    Best place to get a steak! Bear in mind that the french range of well-done to rare is not the same as the English range!!
+    Best place to get a steak! Bear in mind that the French range of well-done to rare is not the same as the English range!!
 
     [La Côte de Boeuf website](http://www.lacotedeboeuf.fr/)
 
@@ -167,7 +169,7 @@ Again, for those of you planning on extending your stay, we have compiled a list
 ## Gifts
 We don't want people to buy us gifts, as we feel that it is enough to ask you to travel all the way over to France! And we do honestly mean that.
 
-However, we understand that some guests may still insist on something, so we intend to show you our minimoon/honeymoon plans, and allow you to pay for some part e.g. our overnight stay in the "chateau dans les arbres", so that we can think of you at that particular event and when we return we can thank you personally for a particular part of the trip. Further details to follow!
+However, we understand that some guests may still insist on something, so we intend to show you our minimoon/honeymoon plans, and allow you to pay for some part e.g. our overnight stay in the "Château dans les Arbres", so that we can think of you at that particular event and when we return we can thank you personally for a particular part of the trip. Further details to follow!
 
 
 ------------------------------------------------------------------------------
