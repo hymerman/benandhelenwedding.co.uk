@@ -74,18 +74,18 @@ Our recommendation is to catch the ferry and drive to the wedding, because if yo
 There are several ferry routes available:
 
 -   [Brittany Ferries](http://www.brittany-ferries.co.uk/)
-  -   Portsmouth to St. Malo
-  -   Portsmouth to Caen
-  -   Portsmouth to Le Havre
-  -   Portsmouth/Poole to Cherbourg
+    -   Portsmouth to St. Malo
+    -   Portsmouth to Caen
+    -   Portsmouth to Le Havre
+    -   Portsmouth/Poole to Cherbourg
 -   [Condor Ferries](http://www.condorferries.co.uk/)
-  -   Portsmouth/Poole/Weymouth to St. Malo/Cherbourg
-  -   Unfortunately all Condor Ferries journeys to St. Malo stop off in Guernsey or Jersey, which is a right pain!
+    -   Portsmouth/Poole/Weymouth to St. Malo/Cherbourg
+    -   Unfortunately all Condor Ferries journeys to St. Malo stop off in Guernsey or Jersey, which is a right pain!
 -   [LD Lines](http://ldlines.co.uk/)
-  -   Newhaven to Dieppe
-  -   Dover to Calais
+    -   Newhaven to Dieppe
+    -   Dover to Calais
 -   [P&O Ferries](http://www.poferries.com/)
-  -   Dover to Calais
+    -   Dover to Calais
 
 Prices vary a lot depending upon which days you go (midweek is cheaper than weekend), and which crossing you take. Generally it is more expensive to go to St. Malo where you have the shorter drive (but longer ferry crossing), and cheaper to go to Caen/Le Havre where it's the other way round. So which you choose depends upon what value you put on to the shorter drive! If you're thinking of stopping at Paris or somewhere else nice over that way, it may make more sense to take one of the crossings further East.
 
