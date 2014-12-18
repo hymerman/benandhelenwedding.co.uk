@@ -73,29 +73,30 @@ Our recommendation is to catch the ferry and drive to the wedding, because if yo
 ### By ferry
 There are several ferry routes available:
 
-- [Brittany Ferries](http://www.brittany-ferries.co.uk/)
--- Portsmouth to St. Malo
--- Portsmouth to Caen
--- Portsmouth to Le Havre
--- Portsmouth/Poole to Cherbourg
-- [Condor Ferries](http://www.condorferries.co.uk/)
--- Portsmouth/Poole/Weymouth to St. Malo/Cherbourg
--- Unfortunately all Condor Ferries journeys to St. Malo stop off in Guernsey or Jersey, which is a right pain!
-- [LD Lines](http://ldlines.co.uk/)
--- Newhaven to Dieppe
--- Dover to Calais
-- [P&O Ferries](http://www.poferries.com/)
--- Dover to Calais
+-   [Brittany Ferries](http://www.brittany-ferries.co.uk/)
+  -   Portsmouth to St. Malo
+  -   Portsmouth to Caen
+  -   Portsmouth to Le Havre
+  -   Portsmouth/Poole to Cherbourg
+-   [Condor Ferries](http://www.condorferries.co.uk/)
+  -   Portsmouth/Poole/Weymouth to St. Malo/Cherbourg
+  -   Unfortunately all Condor Ferries journeys to St. Malo stop off in Guernsey or Jersey, which is a right pain!
+-   [LD Lines](http://ldlines.co.uk/)
+  -   Newhaven to Dieppe
+  -   Dover to Calais
+-   [P&O Ferries](http://www.poferries.com/)
+  -   Dover to Calais
 
 Prices vary a lot depending upon which days you go (midweek is cheaper than weekend), and which crossing you take. Generally it is more expensive to go to St. Malo where you have the shorter drive (but longer ferry crossing), and cheaper to go to Caen/Le Havre where it's the other way round. So which you choose depends upon what value you put on to the shorter drive! If you're thinking of stopping at Paris or somewhere else nice over that way, it may make more sense to take one of the crossings further East.
 
 Driving times vary a lot depending on how many toll roads you use and of course traffic around the big cities, but these are the rough times you're looking at to get to Chef Boutonne from the ferry ports (in good traffic, without breaks):
-- St. Malo: 3:45 using tiny bit of toll near the end, 4:00 without.
-- Caen: 4:00 using all tolls, 5:30 using none.
-- Le Havre: 4:30 hours using all tolls, 6:45 using none.
-- Cherbourg: 5:00 using all tolls, 6:00 using none.
-- Dieppe: 5:00 using all tolls, 6:30 using none.
-- Calais: 6:15 using all tolls, 8:15 using none.
+
+-   St. Malo: 3:45 using tiny bit of toll near the end, 4:00 without.
+-   Caen: 4:00 using all tolls, 5:30 using none.
+-   Le Havre: 4:30 hours using all tolls, 6:45 using none.
+-   Cherbourg: 5:00 using all tolls, 6:00 using none.
+-   Dieppe: 5:00 using all tolls, 6:30 using none.
+-   Calais: 6:15 using all tolls, 8:15 using none.
 
 Many of the main roads in France are toll roads, which you can pay by either cash or card ("Carte Bancaire" -look for the 'CB' sign on the overhead panels). From St Malo, which is the more expensive ferry, only the very last part of the journey is toll roads, but from Caen/Le Havre almost the whole journey is toll roads, so keep this in mind when calculating the costs of alternative options.
 
