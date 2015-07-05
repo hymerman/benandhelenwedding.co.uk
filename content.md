@@ -26,7 +26,7 @@ There are many local accommodation options, which we have researched and summari
 -   ### Camping le Moulin
     The campsite has a mixture of pitches for tents, and static caravan homes available for rent, and the site is approximately 1km from the wedding venue. It is run by an English couple, and also has a reasonable restaurant on site.
 
-    [Camping le Moulin website](http://www.campingchef.com/campingchef)
+    [Camping le Moulin website](http://www.campingchef.com/campingchef/Welcome.html)
 
 -   ### Logis de Lussais
     Originally built as a manor house with a vineyard, and is now converted into a farmhouse and 4 holiday cottages which sleep 4-8 people each. It is approximately 1.5km away from the wedding venue.
@@ -51,7 +51,7 @@ There are many local accommodation options, which we have researched and summari
 -   ### Chateau Ardilleux
     Approximately 4km away from the wedding venue, a converted manor house with 5 double ensuite rooms of varying sizes, as well as a detached cottage available to rent. The accommodation includes access to an indoor pool, tennis court and games room. It also has an associated restaurant, with a very tasty looking menu (at the time of writing, one of the desserts is mango crème brûlée!! Yum!).
 
-    [Chateua Ardilleux website](www.holidaychateau.com)
+    [Chateua Ardilleux website](http://www.holidaychateau.com)
 
 -   ### Les Hiboux
     Approximately 7km away from the wedding venue, a site containing 4 holiday cottages, each sleeping between 6 and 12 people. On site there is an outdoor pool, boules pitches (very French!) and children's play apparatus.
@@ -183,6 +183,8 @@ Again, for those of you planning on extending your stay, we have compiled a list
 
 -   ### La Côte de Boeuf, Melle
     Best place to get a steak! Bear in mind that the French range of well-done to rare is not the same as the English range!!
+
+    [La Côte de Boeuf on TripAdvisor](http://www.tripadvisor.co.uk/Restaurant_Review-g2373946-d3398260-Reviews-La_Cote_De_Boeuf-Melle_Ille_et_Vilaine_Brittany.html)
 
     [La Côte de Boeuf website](http://www.lacotedeboeuf.fr/)
 
