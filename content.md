@@ -192,7 +192,9 @@ Again, for those of you planning on extending your stay, we have compiled a list
 ## Gifts
 We don't want people to buy us gifts, as we feel that it is enough to ask you to travel all the way over to France! And we do honestly mean that.
 
-However, we understand that some guests may still insist on something, so we intend to show you our minimoon/honeymoon plans, and allow you to pay for some part e.g. our overnight stay in the "Château dans les Arbres", so that we can think of you during that event and when we return we can thank you personally for a particular part of the trip. Further details to follow!
+However, we understand that some guests may still insist on getting something, so we've made an online gift list. Since we've been living together for 8 years already we're pretty well sorted for kitchen appliances and bedding, so instead we're asking for contributions for our minimoon that we'll be going on straight after the wedding! We'll be spending 12 nights travelling through France and Spain, returning to the UK from Santander. All the details are on our Honeyfund gift list:
+
+[Ben and Helen's Honeyfund gift list](http://www.honeyfund.co.uk/wedding/benandhelen)
 
 
 ------------------------------------------------------------------------------
