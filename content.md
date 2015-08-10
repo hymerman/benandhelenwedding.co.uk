@@ -201,5 +201,10 @@ However, we understand that some guests may still insist on getting something, s
 
 ------------------------------------------------------------------------------
 
+## Map
+
+
+------------------------------------------------------------------------------
+
 ## Discuss
 We would like you to use this area as an open discussion, for people to organise sharing accommodation and travel with each other. It would be great if you could post your travel plans even if you are not intending on sharing, as perhaps we can organise a coach or something along those lines if enough people are catching the same flight. Alternatively, perhaps people would like to share the cost of a hire car? Also, please use this area to let us know if you are interested in the accommodation associated with the hall, because we will try to organise you into the best groups possible, so that people who know each other are sharing together etc.
