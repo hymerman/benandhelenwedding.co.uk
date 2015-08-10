@@ -13,7 +13,7 @@ We will have our ceremony in the castle grounds (which is a public space, so we 
 As a way of thanking all of you for making the effort of travelling over to France, we have paid for all the drinks at the bar, so you don't need to bring any euros to spend on food or drink on the day of the wedding.
 
 ### Plan for the day after
-Nothing set in stone yet, but we would like to have a gathering and perhaps a BBQ. Details to be confirmed!
+Nothing set in stone yet, but we would like to have a gathering and perhaps a picnic or something. Details to be confirmed! Use the 'subscribe' button above to be emailed when we update this page.
 
 ------------------------------------------------------------------------------
 
