@@ -12,6 +12,9 @@ We will have our ceremony in the castle grounds (which is a public space, so we 
 ### Free bar!!
 As a way of thanking all of you for making the effort of travelling over to France, we have paid for all the drinks at the bar, so you don't need to bring any euros to spend on food or drink on the day of the wedding.
 
+### The night before
+The band that will be playing at the wedding (Ben's dad's band - [One Fret Away](https://www.facebook.com/OneFretAway)!) will also be playing at the nearby campsite's restaurant, [Restaurant des Canards](http://restaurant.campingchef.com/), the night before! Feel free to pop along for a sneak preview (don't worry, we've made sure the sets don't overlap!). Music nights are popular, so if you want to eat at the restaurant, either book ahead or let us know before the 15th Aug and we'll pass it on. Helen won't be going, but Ben will pop along for a drink or two, and there will be many other wedding guests there so you won't feel out of place!
+
 ### Plan for the day after
 Nothing set in stone yet, but we would like to have a gathering and perhaps a picnic or something. Details to be confirmed! Use the 'subscribe' button above to be emailed when we update this page.
 
@@ -179,7 +182,11 @@ Again, for those of you planning on extending your stay, we have compiled a list
     Recently renovated, they sell tasty pizza. We usually get a takeaway "pour emporter"
 
 -   ### Restaurant des Canards, Chef Boutonne
-    This is the restaurant associated with the camp site. It is run by an English couple, but the last time we went the chef was French. They tend to serve more English-y meals, because most of their customers at the campsite are English. They also have themed nights e.g. quiz nights on specific days of the week, which they advertise on the board outside the campsite.
+    This is the restaurant associated with the camp site. It is run by an English couple, but the last time we went the chef was French. They tend to serve more English-y meals, because most of their customers at the campsite are English. They also have themed nights e.g. quiz nights on specific days of the week, which they advertise on the board outside the campsite. They're also host to One Fret Away the night before the wedding!
+
+    [Restaurant des Canards on TripAdvisor](http://www.tripadvisor.co.uk/Restaurant_Review-g1916959-d3447236-Reviews-Restaurant_des_canards-Chef_Boutonne_Deux_Sevres_Poitou_Charentes.html)
+
+    [Restaurant des Canards website](http://restaurant.campingchef.com/)
 
 -   ### La Côte de Boeuf, Melle
     Best place to get a steak! Bear in mind that the French range of well-done to rare is not the same as the English range!!
