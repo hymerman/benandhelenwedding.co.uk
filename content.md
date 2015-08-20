@@ -16,7 +16,7 @@ As a way of thanking all of you for making the effort of travelling over to Fran
 The band that will be playing at the wedding (Ben's dad's band - [One Fret Away](https://www.facebook.com/OneFretAway)!) will also be playing at the nearby campsite's restaurant, [Restaurant des Canards](http://restaurant.campingchef.com/), the night before! Feel free to pop along for a sneak preview (don't worry, we've made sure the sets don't overlap!). Music nights are popular, so if you want to eat at the restaurant, either book ahead or let us know before the 15th Aug and we'll pass it on. Helen won't be going, but Ben will pop along for a drink or two, and there will be many other wedding guests there so you won't feel out of place!
 
 ### Plan for the day after
-Nothing set in stone yet, but we would like to have a gathering and perhaps a picnic or something. Details to be confirmed! Use the 'subscribe' button above to be emailed when we update this page.
+Unless it's raining, we'll be having a picnic by the lake at the château, at 1pm. You're very welcome to join us! Bring along something to eat, and a blanket or chair if you have one.
 
 ------------------------------------------------------------------------------
 
